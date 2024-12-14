@@ -374,5 +374,10 @@
 <li><a href="https://www.beji.desa.id/wp-content/themes/panda-child/js/amp/">Daftar Merek Obat Penggugur Kandungan yang Tersedia di Apotek Farmasi: Panduan Lengkap Aborsi Janin usia 1-8 Bulan untuk Konsumen</a></li>
 </ol>
 
+<ul>
+<li><a href="https://www.bhuanajaya.desa.id/produk-warga/obat-aborsi-cytotec/">Obat Aborsi asli Aman dan Efektif: Menggunakan Cytotec 400 mg untuk Mengatasi Kehamilan yang Tidak Diinginkan</a></li>
+<li><a href="https://golopongkor.panda.id/produk/obat-aborsi-cytotec/">Obat Aborsi Cytotec Asli 400 mg: Solusi Aman dan Efektif untuk Mengatasi Kehamilan yang Tidak Diinginkan</a></li>
+</ul>
+
 <p><a href="https://peraturan.uin-malang.ac.id/user/asliampuh/">Pil Aborsi</a></p>
 </div>
